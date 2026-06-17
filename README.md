@@ -3,7 +3,7 @@ He / She / It
 elnina yumeshipper <33 (sharing)
 i kin lanino!
 
-![](deltarune-elnino.gif)
+![](deltarune-elnino.gif) 
 
 i am 15 and i have autism, adhd, and aspd.
 
